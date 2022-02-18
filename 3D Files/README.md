@@ -1,3 +1,0 @@
-
-
-FAN DUCT IN PROGRESS!
